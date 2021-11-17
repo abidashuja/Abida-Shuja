@@ -9,7 +9,7 @@ Talking about my personal Interest:
 
 💻 The tech I'm interested React
 
-📱  Sofware Quality Testing  at Evolving Intelligence
+📱  Sofware Quality Testing  at Evolving Intelligence lnc
 
 ✨ I'm learning React NodeJs
 
