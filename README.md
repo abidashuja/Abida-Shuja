@@ -15,8 +15,7 @@ Talking about my personal Interest:
 
 
 
+![3jKD](https://user-images.githubusercontent.com/76204294/142147546-543e4f23-9ad5-44fa-ad65-073ed137730d.gif)
 
-
-![code](https://user-images.githubusercontent.com/76204294/141967212-d6c1737e-17f3-48d7-a0e4-82684ab3efb5.gif)
 
 
